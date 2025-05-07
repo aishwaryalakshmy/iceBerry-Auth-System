@@ -28,5 +28,5 @@
 ![Screenshot (116)](https://github.com/user-attachments/assets/0e6c3e87-26be-456c-be13-03eca30d03fd)
 
 ## 🤓 Author
-Made with 💚 by Aishwarya Lakshmy K S
+Made with 💚 by Aishwarya Lakshmy K S,
 For any project related queries, CONTACT : aishwaryalakshmy26@gmail.com
